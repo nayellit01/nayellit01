@@ -1,16 +1,16 @@
-### Hi there 👋
+# :white_heart: Heyoo! :white_heart:
 
-<!--
-**nayellit01/nayellit01** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+### My name is Nayelli Tejada!
 
-Here are some ideas to get you started:
+｡･:*:･ﾟ★,｡･:*:･ﾟ☆｡･:*:･ﾟ★,｡･:*:･ﾟ☆｡･:*:･ﾟ★,｡･:*:･ﾟ☆
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### Here's a bit about me ↴
+
+- 🎓 I am a student at Raritan Valley Community College
+- ✨	I am Hispanic (Puerto Rican & Dominican)
+- 🐶 I absolutely **LOVE** animals & nature
+- 🎮 I've been playing video games since I could hold a gameboy
+- 💸 I've managed to make a side hustle selling clothes & homemade jewelry 
+- ⭐ I hope to have my own business in the near future :)
+
+｡･:*:･ﾟ★,｡･:*:･ﾟ☆｡･:*:･ﾟ★,｡･:*:･ﾟ☆｡･:*:･ﾟ★,｡･:*:･ﾟ☆
